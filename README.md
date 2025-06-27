@@ -10,7 +10,4 @@
  if u want - 𝗱𝗶𝘀𝗰𖦹𝗿𝗱;: 𝗀𝗂𝗀𝖺𝗇𝗍𝖾𝗌𝖼𝗈_𝗆𝖺𝗇𝗈 :)
 
 
- 
-literally you rigth nw lol
-
-![zevis gif](./VID-20250626-WA0103.mp4)
+![zevis gif](./osaki-nana-eyes.gif)
