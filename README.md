@@ -13,4 +13,4 @@
  
 literally you rigth nw lol
 
-![zevis gif](./VID-20250626-WA0103.gif)
+![zevis gif](./VID-20250626-WA0103.mp4)
