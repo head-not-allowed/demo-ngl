@@ -20,6 +20,5 @@
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
-ᅠᅠᅠᅠ
 ![zevis gif](./osaki-nana-eyes.gif)
  
