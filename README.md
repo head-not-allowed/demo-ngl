@@ -26,5 +26,5 @@ hai! im zevis (you can call me Lumi, which is what my irl friends call me)ᅠᅠ
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
-![zevis gif](./osaki-nana-eyes.gif)
+![zevis gif](./giphy.gif)
  
