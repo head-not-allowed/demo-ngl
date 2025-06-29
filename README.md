@@ -14,7 +14,7 @@
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠmy age? i'm 2teen (almost 3teen)
  ᅠᅠᅠᅠ
-ᅠᅠᅠᅠmy birthday is September 25th !
+ᅠᅠᅠᅠmy birthday is in September 25th !
  ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
