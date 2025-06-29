@@ -18,7 +18,7 @@ hai! im zevis (you can call me Lumi, which is what my irl friends call me)ᅠᅠ
 ᅠᅠᅠᅠ
 ᅠᅠᅠᅠmy age? i'm 2teen (almost 3teen)
  ᅠᅠᅠᅠ
-ᅠᅠᅠᅠmy birthday? is in September 25th !
+ᅠᅠᅠᅠmy birthday? is in September 25th!
  ᅠᅠᅠᅠ
 ᅠᅠᅠᅠi'm a big fan of one piece ♡
 ᅠᅠᅠᅠ
