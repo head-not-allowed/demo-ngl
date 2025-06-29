@@ -6,7 +6,9 @@
 
  ᅠᅠᅠᅠ𖹭𖹭𖹭𖹭
 
-hai! im zevis (you can call me Lumi, which is what my irl friends call me)
+hai! im zevis (you can call me Lumi, which is what my irl friends call me)ᅠᅠᅠᅠ
+
+ᅠᅠᅠᅠ
 ᅠᅠᅠᅠ
  ᅠᅠᅠᅠ
 𝗂 𝗅𖹭𝗏𝖾 𝗌𖦹 𝗆𝗎𝖼𝗁 𝗆𝖺𝗄𝖾 𝖿𝗋𝗂𝖾𝗇𝖽𝗌 𖹭!!!!! 
