@@ -1,6 +1,6 @@
 # ໑๑   ⚔️    ࣪     ꒰ ! ꒱    ⦂
 
-# demo-ngl
+# READ ME !! (>_<)
 
 ![zevis gif](./c63d07935be582ec289a3e36968ef8a3.gif)
 
